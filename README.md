@@ -16,8 +16,8 @@ Treasure Valley Trash Wash is a family-owned business offering high-quality tras
 
 ## 📞 Contact
 
-- 📱 **+1 (208) 972-1027**  
-- 📱 **(208) 507-8349**  
+- 📱 **+1 (208) 972-1027** Use for merdian Area
+- 📱 **(208) 507-8349**  Use for north End area
 - 📧 Email: [info@treasurevalleytrashwash.com](mailto:info@treasurevalleytrashwash.com)
 
 ---
